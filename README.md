@@ -1,0 +1,2 @@
+# pemula
+Tahap belajar
